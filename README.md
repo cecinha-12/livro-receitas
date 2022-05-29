@@ -5,7 +5,7 @@
 Olá! bem vindo ao meu livro de receitas :heart:
 
 - macarronada
-- pavê de leite
+- pavê de leite com chocolate
 - bolo de cenoura
 
 
