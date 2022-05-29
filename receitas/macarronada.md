@@ -22,6 +22,3 @@
   2. Em outra panela, aqueça o azeite, frite o alho e a cebola até dourar, acrescente o extrato de tomate e deixe fritar por 3 minutos.
   3. Junte a água e deixe ferver em fogo médio por 15 minutos. Acrescente o macarrão e mexa rapidamente.
   4. Transfira para uma travessa e polvilhe com queijo ralado.
-
-
-

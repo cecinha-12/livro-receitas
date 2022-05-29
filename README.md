@@ -5,7 +5,8 @@
 Olá! bem vindo ao meu livro de receitas :heart:
 
 - macarronada
-- pavê
+- pavê de chocolate
+- bolo de cenoura
 
 
 
